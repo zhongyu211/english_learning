@@ -18,3 +18,15 @@
 只要你不给我那样的表情
 ## Through thick and thin.
 风雨同舟
+## a bitter pill to swallow
+不得不忍受的痛苦
+Losing his beloved wife is a bitter pill to swallow for him
+## I will check it out
+做一些通常的调查确定问题原因
+## we are a little long in the tooth for old feuds
+我们积怨已久
+## I'm all ears
+洗耳恭听
+## I gonna make you an offer
+我给你开个条件
+## 
