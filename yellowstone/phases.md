@@ -49,6 +49,6 @@ To be involved with someone or something that is powerful and could become troub
 这是一个惨痛的教训, 你也很快会尝到的
 ## I'd say we pulled the band aid
 撕破脸了
-##you say what you mean and you do what you say
+## you say what you mean and you do what you say
 言而有信 言出必行
 
