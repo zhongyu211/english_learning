@@ -29,4 +29,26 @@ Losing his beloved wife is a bitter pill to swallow for him
 洗耳恭听
 ## I gonna make you an offer
 我给你开个条件
-## 
+## do muddy the water
+搅和事儿
+## break sb's heart 
+伤了某人的心
+## all the matters
+最重要的事情
+## cool shit ain't cheap and cheap shit ain't cool
+好货不便宜，便宜没好货
+## have a tiger by the tail
+To be involved with someone or something that is powerful and could become troublesome or threatening.
+## get dirty
+下黑手
+## a verbal agreement
+一个口头协议
+## you have my word
+我说到做到
+## it is a painful lesson, and one you're about to learn
+这是一个惨痛的教训, 你也很快会尝到的
+## I'd say we pulled the band aid
+撕破脸了
+##you say what you mean and you do what you say
+言而有信 言出必行
+
