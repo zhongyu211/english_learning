@@ -51,4 +51,27 @@ To be involved with someone or something that is powerful and could become troub
 撕破脸了
 ## you say what you mean and you do what you say
 言而有信 言出必行
+## drop by unannounced
+突然造访
+## it's either real good or real bad
+要么特别好要么特别坏
+## you got it
+你行吗/你说的对
+## you said it
+没错
+## you name it
+你尽管说好了
+## you better believe it
+那还用问，当然是
+## at the very least
+至少是这样的
+## well, then it settled
+好的，就这么定了
+## you'd be suprise how much it matters
+你会惊讶他们多么重要
+## we rest the little things on the large things
+我们从小事往长远看
+## live at first sight
+一见钟情
+
 
