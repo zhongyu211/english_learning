@@ -71,7 +71,13 @@ To be involved with someone or something that is powerful and could become troub
 你会惊讶他们多么重要
 ## we rest the little things on the large things
 我们从小事往长远看
-## live at first sight
+## love at first sight
 一见钟情
+## there's always a big bear
+总有更厉害的角色在等着你
+## you done
+你完了吗
+## we don't kill sheep, we kill wolves
+表示只对坏人出手， 不会伤及无辜
 
 
